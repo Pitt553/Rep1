@@ -1,1 +1,1 @@
-Readme edytowalne.
+Readme edytowalne. Lmao
